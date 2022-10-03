@@ -2,7 +2,7 @@
 
 
 
-![](assets/52f25b9df1a2c4a592922958b84eaf851f036793.png)
+![](assets/coruh-logo-name.png)
 
 ### About Us
 
